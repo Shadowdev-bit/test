@@ -1,4 +1,3 @@
 # test
 Hello i'm interligent text
-iuyg
-iuurygfdgf
+this is janindu kanishka sampath
